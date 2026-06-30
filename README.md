@@ -1,1 +1,1 @@
-do the best, and let ur agentic ai do the rest
+do the best, and let ur agent do the rest
